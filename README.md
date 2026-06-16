@@ -30,7 +30,7 @@
 
 Telegram 频道：
 
-👉 [https://t.me/你的频道](https://t.me/baipiaoking2)
+👉 https://t.me/baipiaoking2
 
 ---
 
